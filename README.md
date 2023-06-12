@@ -1,1 +1,1 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fgifs%2FcoxQHKASG60HrHtvkt&psig=AOvVaw2gZvh66AyfFPeP6x3TxiD4&ust=1686671390326000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCPCc0NiKvv8CFQAAAAAdAAAAABAF
+![Black Minimalist LinkedIn Banner](https://github.com/sanjaygodawat0/my..python/assets/126377932/f978ec15-b827-413d-ba02-2c5c7d99245d)
